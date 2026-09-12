@@ -1,1 +1,1 @@
-# stickers
+贴纸
